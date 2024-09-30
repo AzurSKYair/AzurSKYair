@@ -1,0 +1,3 @@
+- Hello, I'm @AzurSKYair
+- I 'm interested ... Construction
+- I 've been studying lately ... intern
